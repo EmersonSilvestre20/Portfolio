@@ -41,6 +41,6 @@ Sinta-se à vontade para entrar em contato comigo para discutir projetos, oportu
 
 - **Email:** justino20032022@gmail.com
 - **LinkedIn:** [Meu Perfil LinkedIn](www.linkedin.com/in/bartolomeu-justino-9a19a7278)
-- **GitHub:** [link_do_github](https://github.com/EmersonSilvestre20))
+- **GitHub:** [link_do_github](https://github.com/EmersonSilvestre20)
 
 Obrigado por visitar meu portfólio!
