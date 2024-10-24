@@ -43,4 +43,6 @@ Sinta-se à vontade para entrar em contato comigo para discutir projetos, oportu
 - **LinkedIn:** [Meu Perfil LinkedIn](www.linkedin.com/in/bartolomeu-justino-9a19a7278)
 - **GitHub:** [link_do_github](https://github.com/EmersonSilvestre20)
 - **Portfolio:** [link do portfolio](https://emersonsilvestre20.github.io/Portfolio/)
+- **Instagram:** [link do instagram](https://www.instagram.com/bartolmeu/)
+- **Facebook:** [link do facebook](https://www.facebook.com/justino.veronica.5)
 Obrigado por visitar meu portfólio!
