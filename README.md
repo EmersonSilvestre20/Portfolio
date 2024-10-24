@@ -45,5 +45,5 @@ Sinta-se à vontade para entrar em contato comigo para discutir projetos, oportu
 - **Portfolio:** [link do portfolio](https://emersonsilvestre20.github.io/Portfolio/)
 - **Instagram:** [link do instagram](https://www.instagram.com/bartolmeu/)
 - **Facebook:** [link do facebook](https://www.facebook.com/justino.veronica.5)
-- **
+- 
 Obrigado por visitar meu portfólio!
